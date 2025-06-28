@@ -1,0 +1,11 @@
+Read and Downlaod Therapy & Counseling Approaches book free
+- [Psychoanalytic Psychotherapy: A Practitioner's Guide (2054)](https://lit2talks.com/psychoanalytic-psychotherapy-a-practitioner-s-guide-2054)
+- [Psychodynamic Formulation (2055)](https://lit2talks.com/psychodynamic-formulation-by-deborah-l-cabaniss-2055)
+- [Effective Techniques for Dealing with Highly Resistant Clients (2068)](https://lit2talks.com/effective-techniques-for-dealing-with-highly-resistant-clients-pdf-2068)
+- [Reaching Through Resistance: Advanced Psychotherapy Techniques (2069)](https://lit2talks.com/reaching-through-resistance-advanced-psychotherapy-techniques-2069)
+- [Psychodynamic Psychiatry in Clinical Practice (2071)](https://lit2talks.com/psychodynamic-psychiatry-in-clinical-practice-book-pdf-2071)
+- [Feedback-Informed Treatment in Clinical Practice (2072)](https://lit2talks.com/feedback-informed-treatment-in-clinical-practice-book-pdf-2072)
+- [Solution-Focused Counseling in Schools (2073)](https://lit2talks.com/solution-focused-counseling-in-schools-pdf-2073)
+- [Counselling Skills in Context (2074)](https://lit2talks.com/counselling-skills-in-context-book-pdf-2074)
+- [Psychodynamic Techniques (2075)](https://lit2talks.com/psychodynamic-techniques-book-pdf-2075)
+- [Trauma Therapy and Clinical Practice (2076)](https://lit2talks.com/trauma-therapy-and-clinical-practice-pdf-2076)
