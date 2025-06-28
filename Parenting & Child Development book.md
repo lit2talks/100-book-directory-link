@@ -1,0 +1,10 @@
+Read and Download Parenting & Child Development book download free
+- [Good Inside: A Practical Guide to Becoming the Parent You Want to Be (2008)](https://lit2talks.com/good-inside-a-practical-guide-to-becoming-the-parent-you-want-to-be-2008)
+- [Wired Child: Reclaiming Childhood in a Digital Age (2012)](https://lit2talks.com/wired-child-reclaiming-childhood-in-a-digital-age-2012)
+- [Anything But My Phone, Mom!: Raising Emotionally Resilient Daughters (2013)](https://lit2talks.com/anything-but-my-phone-mom-raising-emotionally-resilient-daughters-2013)
+- [Screens and Teens (2014)](https://lit2talks.com/screens-and-teens-pdf-2014)
+- [Parenting in the Age of Attention Snatchers (2015)](https://lit2talks.com/parenting-in-the-age-of-attention-snatchers-pdf-2015)
+- [The Digital Diet: The 4-Step Plan to Break Your Tech Addiction (2016)](https://lit2talks.com/the-digital-diet-the-4-step-plan-to-break-your-tech-addiction-2016)
+- [The Tech Diet for Your Child & Teen (2017)](https://lit2talks.com/the-tech-diet-for-your-child-teen-pdf-2017)
+- [The Self-Driven Child (2029)](https://lit2talks.com/the-self-driven-child-pdf-2029)
+- [Parenting Without Power Struggles (2030)](https://lit2talks.com/parenting-without-power-struggles-pdf-2030)
